@@ -1,4 +1,4 @@
-
+Experience be a lucky block like never before with no-ban be a lucky block Script, the #1 Script. Includes infinite resources and custom skins for
 
 
 
